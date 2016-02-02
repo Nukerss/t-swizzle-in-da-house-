@@ -8,4 +8,4 @@ This is a picture of the beauty herself, her body glowing in an otherwise depres
 
 
 ![alt tag](http://www.aux.tv/wp-content/uploads/2015/01/BestInTheBizPits.jpg)
-How you matter is defined by the things that matter to you. You matter as much as the things that matter to you do.
+"How you matter is defined by the things that matter to you. You matter as much as the things that matter to you do."
