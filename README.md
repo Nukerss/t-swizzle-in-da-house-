@@ -10,5 +10,5 @@ This is a picture of the beauty herself, her body glowing in an otherwise depres
 ![alt tag](https://pbs.twimg.com/profile_images/378800000469177479/7cf2521b2d025ae6e4e970d21829b8a0.jpeg) 
 "Hearts are wild creatures. That's why our ribs are cages."
 
-![alt tag](http://i.perezhilton.com/wp-content/uploads/2008/12/ts__oPt.jpg)
+![alt tag](http://www.celebritiespedia.com/wp-content/uploads/2015/01/taylor-swift9.jpg)
 "Talent is nothing but a prolonged period of attention and shortened period of mental assimilation."
