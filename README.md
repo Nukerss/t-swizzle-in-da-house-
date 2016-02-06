@@ -13,5 +13,5 @@ This is a picture of the beauty herself, her body glowing in an otherwise depres
 ![alt tag](http://www.celebritiespedia.com/wp-content/uploads/2015/01/taylor-swift9.jpg)
 "Talent is nothing but a prolonged period of attention and shortened period of mental assimilation."
 
-![alt tag](http://data.whicdn.com/images/58609107/large.gif)
+![alt tag](http://3.bp.blogspot.com/-8nN5zpjyXes/T4tD0soBwOI/AAAAAAAABCs/xOMTYpFjMqI/s1600/TaylorSwift509lo.jpg)
 "I know that you believe that you understood what you think I said, but I am not sure you realize that what you heard is not what I meant."
