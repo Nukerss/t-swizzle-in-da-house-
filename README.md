@@ -16,5 +16,5 @@ This is a picture of the beauty herself, her body glowing in an otherwise depres
 ![alt tag](http://3.bp.blogspot.com/-8nN5zpjyXes/T4tD0soBwOI/AAAAAAAABCs/xOMTYpFjMqI/s1600/TaylorSwift509lo.jpg)
 "I know that you believe that you understood what you think I said, but I am not sure you realize that what you heard is not what I meant."
 
-![alt tag]http://cbs1037litefm.files.wordpress.com/2013/01/taylor_swift2.jpg)
+![alt tag](http://cbs1037litefm.files.wordpress.com/2013/01/taylor_swift2.jpg)
 "Anyone can lose a few pounds, but not everyone has the tools to stick with it."(Talking about you Brian)
