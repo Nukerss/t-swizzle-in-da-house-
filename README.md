@@ -18,3 +18,6 @@ This is a picture of the beauty herself, her body glowing in an otherwise depres
 
 ![alt tag](http://cbs1037litefm.files.wordpress.com/2013/01/taylor_swift2.jpg)
 "Anyone can lose a few pounds, but not everyone has the tools to stick with it."(Talking about you Brian)
+
+![alt tag](http://29secrets.com/wp-content/uploads/2015/04/taylor-swift-and-car.gif)
+"Silence propagates itself, and the longer talk has been suspended, the more difficult it is to find anything to say."
