@@ -21,3 +21,7 @@ This is a picture of the beauty herself, her body glowing in an otherwise depres
 
 ![alt tag](http://29secrets.com/wp-content/uploads/2015/04/taylor-swift-and-car.gif)
 "Silence propagates itself, and the longer talk has been suspended, the more difficult it is to find anything to say."
+
+![alt tag](https://i.ytimg.com/vi/QlEbvGF5xR8/maxresdefault.jpg)
+"I never vote for anyone; I always vote against."
+
