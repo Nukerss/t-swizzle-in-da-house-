@@ -25,3 +25,6 @@ This is a picture of the beauty herself, her body glowing in an otherwise depres
 ![alt tag](https://i.ytimg.com/vi/QlEbvGF5xR8/maxresdefault.jpg)
 "I never vote for anyone; I always vote against."
 
+![alt tag](http://static6.businessinsider.com/image/55d25858371d22472c8be5c5/calvin-harris-defends-girlfriend-taylor-swift-in-twitter-feud-over-spotify-profits.jpg)
+"People with great passion can make the impossible happen." - Justin D'souza 
+
