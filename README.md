@@ -28,5 +28,5 @@ This is a picture of the beauty herself, her body glowing in an otherwise depres
 ![alt tag](http://static6.businessinsider.com/image/55d25858371d22472c8be5c5/calvin-harris-defends-girlfriend-taylor-swift-in-twitter-feud-over-spotify-profits.jpg)
 "People with great passion can make the impossible happen." - Justin D'souza 
 
-![alt tag](https://i.guim.co.uk/img/media/48cdb9d882609a1922c18e861e0c594c0d59776b/0_117_2992_1795/master/2992.jpg?w=620&q=85&auto=format&sharp=10&s=0d737ec1dd0ae75c69c36c4ecd1e08af)
+![alt tag](http://images1.houstonpress.com/imager/u/745xauto/7752285/09092015_taylorswift_hou_jackgorman-20.jpg)
 
