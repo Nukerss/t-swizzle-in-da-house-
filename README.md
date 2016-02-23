@@ -28,5 +28,6 @@ This is a picture of the beauty herself, her body glowing in an otherwise depres
 ![alt tag](http://static6.businessinsider.com/image/55d25858371d22472c8be5c5/calvin-harris-defends-girlfriend-taylor-swift-in-twitter-feud-over-spotify-profits.jpg)
 "People with great passion can make the impossible happen." - Justin D'souza 
 
-![alt tag](http://images1.houstonpress.com/imager/u/745xauto/7752285/09092015_taylorswift_hou_jackgorman-20.jpg)
+![alt tag](https://static-secure.guim.co.uk/sys-images/Guardian/Pix/pictures/2014/11/4/1415137609401/Taylor-Swift-in-concert-014.jpg)
+"Opinions are like armpits - everyone has them and most of the time they stink."
 
