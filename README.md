@@ -31,3 +31,5 @@ This is a picture of the beauty herself, her body glowing in an otherwise depres
 ![alt tag](https://static-secure.guim.co.uk/sys-images/Guardian/Pix/pictures/2014/11/4/1415137609401/Taylor-Swift-in-concert-014.jpg)
 "Opinions are like armpits - everyone has them and most of the time they stink."
 
+![alt tag](http://media2.popsugar-assets.com/files/2015/10/08/812/n/1922398/603c5c8e_edit_img_cover_file_17053399_1444161195_taylorFB_copyOKPAEU.xxxlarge/i/Taylor-Swift-Music-Video-Halloween-Costumes.jpg)
+"Don't make use of another's mouth unless it has been lent to you."
